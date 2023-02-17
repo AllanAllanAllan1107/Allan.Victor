@@ -1,2 +1,0 @@
-# Allan.Victor
-Opa opa!!👍👍
